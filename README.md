@@ -1,0 +1,2 @@
+# premium-star-chart-001-celestial-star-chart-projectio
+Tired of planning your days without a cosmic compass? The Celestial Star Chart Projection Planner bridges the gap between your earthly goals and the celestial movements guiding your path.  This Notion template transforms static star charts into a dynamic, actionable planner. Instead of just reading your chart, you project your intentions onto upcom
